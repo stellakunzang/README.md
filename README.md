@@ -1,0 +1,1 @@
+I am looking forward to carving out a rewarding career as a software developer, bringing together my lifelong passion for language with my newfound love of writing clean, readable code. I’m enthusiastic about technology designed to enhance human communication and facilitate collaboration, and I am always on the lookout for opportunities to hone my technical writing skills.
